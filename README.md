@@ -2,7 +2,7 @@
 
 ## Due Date
 
-TBD
+Tuesday, October 31, 2017 @ 8:00 PM
 
 ## Goals
 
